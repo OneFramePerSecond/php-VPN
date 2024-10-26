@@ -1,1 +1,1 @@
-just nithing
+just nothing
